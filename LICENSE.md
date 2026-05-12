@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with liquidation sniper bot ultimate Algorithm | price-monitoring & grid-trading, the #1 liquidation sniper bot. Includes price-monitoring and grid-trading
 
 
 
